@@ -1,5 +1,5 @@
 # surat-lamaran-kerja-di-pt
-[contoh surat lamaran kerja di pt](https://www.pujihartono.id/2021/09/contoh-surat-lamaran-kerja-di-pt-pabrik.html.html)
+[contoh surat lamaran kerja di pt](https://contoh-surat-lamaran-pekerjaan.github.io/)
 surat lamaran kerja pt
 contoh surat lamaran kerja di pt sebagai karyawan
 contoh surat lamaran kerja pt
